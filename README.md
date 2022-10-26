@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Anti-douleur
+- 👋 Hi, I’m @Anti-douleur aka Painkiller aka K
 - 👀 I’m interested in Art-plastic, cuisine africain, asiatique et un français, K-pop,Afro,classic, drama, manga, and learning news languages
 - 🌱 I’m currently learning japonais and chinois
 - 💞️ I’m looking to collaborate on nothing...
